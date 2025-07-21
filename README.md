@@ -24,4 +24,6 @@ Before exploring this darknet marketplace, prioritize your security and take nec
 <a href="http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion"><img src="/asset/notification.webp" alt="image" style="max-width: 100%;"><a>  
 <a href="http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion"><img src="/asset/gap.webp" alt="image" style="max-width: 100%;"><a>
 
-Update:  18.07.2025
+
+
+Update:  21 July 2025 link is back up and accessible
