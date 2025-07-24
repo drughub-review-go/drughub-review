@@ -26,4 +26,6 @@ Before exploring this darknet marketplace, prioritize your security and take nec
 
 
 
-Update:  21 July 2025 link is back up and accessible
+
+
+Update:  07/24/2025 12-13-39
